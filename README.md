@@ -1,6 +1,5 @@
 
 
-
 Telangana Growth Analysis
 
 
